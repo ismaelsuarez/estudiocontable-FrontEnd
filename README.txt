@@ -1,0 +1,1 @@
+Pagina Web solo de uso recreativo o de estudio
